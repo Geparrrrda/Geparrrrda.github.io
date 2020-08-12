@@ -1,2 +1,0 @@
-# Geparrrrda.github.io
-Сайты
